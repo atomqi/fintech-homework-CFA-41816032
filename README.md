@@ -1,1 +1,0 @@
-# fintech-homework-CFA-41816032
